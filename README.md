@@ -1,2 +1,0 @@
-# swarajboss.practise_GT
- 
